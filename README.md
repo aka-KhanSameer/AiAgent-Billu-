@@ -87,7 +87,7 @@ MIT License – Free to use, improve, and share.
 ## 📬 Let’s Connect
 
 Feel free to reach out if you’re curious or want to collaborate:  
-🔗 [LinkedIn](https://www.linkedin.com/in/kashif-kairo)
+🔗 [LinkedIn](www.linkedin.com/in/khansameer01)
 
 ---
 
