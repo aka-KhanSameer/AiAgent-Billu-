@@ -91,5 +91,5 @@ Feel free to reach out if you’re curious or want to collaborate:
 
 ---
 
-> Made with 💻, ☕, and lots of curiosity by Mohammad Kashif
+> Made with 💻, ☕, and lots of curiosity by Sameer Khan
 
